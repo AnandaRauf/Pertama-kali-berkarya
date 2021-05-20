@@ -30,6 +30,7 @@ Linkedin : https://www.linkedin.com/in/ananda-rauf-maududi
 Facebook : SirAnanda Rauf Maududi.
 Twitter : @anandaraufm / https://www.twitter.com/anandaraufm
 Ko-fi : ko-fi.com/anandaraufdev
+Telegram : https://www.t.me/anandaraufm
 
 Bisnis saya : 
 Website : https://www.retailtechsource.com
